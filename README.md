@@ -3,6 +3,6 @@
 - A new private channel has been opened on Telegram
 - in which I share all my tools and bots that I sell
 - and it has competitions and prizes
-- for a monthly subscription of $40
+- for a monthly subscription of $200
 - Payment by crypto ​
 - Contact me:https://t.me/enginneer1 
